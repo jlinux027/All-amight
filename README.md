@@ -1,1 +1,1 @@
-# All-amight
+# All-Might
